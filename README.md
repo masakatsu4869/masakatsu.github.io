@@ -1,1 +1,0 @@
-# masakatsu.github.io
